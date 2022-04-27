@@ -8,9 +8,9 @@ Any news of Dr miles Morales(the spider man guy)
 
     (-_-)
 
-I am papa johns colaborator>
 
-I respect papa deeply
+
+Image of papa john:
 
 \(-_-)/
  \ |/
